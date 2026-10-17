@@ -1,2 +1,2 @@
 # priyanshi50-hue.github.io
-a web developer showcasing creativity and love. generate a customised website for your loved once to surprise them... them 
+a web developer showcasing creativity and love. generate a customised website for your loved once to surprise them...  
